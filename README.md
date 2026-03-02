@@ -1,4 +1,4 @@
-              𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼⋅˚₊‧ ଳ ‧₊˚ ⋅ i lov gay ppl
+              𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼⋅˚₊‧ ଳ ‧₊˚ ⋅ esupuriP/valkP/naruP/raikaP
 <p align="center">
 <img src="https://media.giphy.com/media/TleRuyuLGvYpD6N7W5/giphy.gif?cid=790b7611vn1dh5mc5b4upx013fx93ttca3w3rqvenack67z7&ep=v1_gifs_search&rid=giphy.gif&ct=g" width="230"/> <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExZDkwMHpjc3lkdDl6dm54MjhlOW1odGJ6amR5eXo0ZGJ6bnM3MWo0aiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/QAvd4MXxoRXtpwZpeZ/giphy.gif" width="230"/><img  src="https://media1.tenor.com/m/N3ZRCb8PKhgAAAAC/lgbtq-lgbt.gif" width="230"/>  <img src="https://media1.tenor.com/m/j1KNT_W_zxMAAAAC/agender-pride.gif" width="245"/>
   </a>
